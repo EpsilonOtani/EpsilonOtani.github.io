@@ -1,1 +1,0 @@
-# fujishitaArashi.github.io
